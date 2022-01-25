@@ -1,1 +1,1 @@
-https://sanchez-christian.github.io/planet-earth/
+https://sanchez-christian.github.io/solyluna/
